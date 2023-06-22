@@ -2,4 +2,8 @@
 
 Mi primer repositorio
 
-Me gusta jugar a la pc, tocar la bateria, programar y hacer soportes a pc´s
+I like to play the pc, play the drums, program and support pc's
+
+I like to run
+
+I like listening to music
